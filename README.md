@@ -18,6 +18,6 @@ And much more!
 Our videos are designed to be informative and engaging, with clear explanations and helpful examples. We also provide additional resources, such as code samples and links to helpful tools and resources, to help you learn more.
 
 Get in Touch
-We love hearing from our viewers! If you have any questions, comments, or suggestions for future videos, please feel free to reach out to us. You can find us on social media or email us at [insert email address here].
+We love hearing from our viewers! If you have any questions, comments, or suggestions for future videos, please feel free to reach out to us. You can find us on social media or email us at [augustmatano994@gmail.com].
 
 Thank you for watching Program Blaqq, and we hope you enjoy our content!
